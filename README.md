@@ -7,10 +7,10 @@
 Project Made In Adobe After Effects 
 
 
-Song Was Screwed And Chopped In Serato Extracted In WAV Formart
+Song Was Screwed And Chopped In Serato Extracted In MP3 Formart
 ## Features
 
-- WAV Audio Format
+- MP3 Audio Format
 - Adobe After Effects
 - Visualizer
 - No Plugins Required
