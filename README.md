@@ -18,7 +18,11 @@ Song Was Screwed And Chopped In Serato Extracted In MP3 Formart
 
 ## Demo
 
-[URL=https://filelions.online/f/mz7nbcgof7fb][IMG]https://lions-img.xyz/mz7nbcgof7fb_t.jpg[/IMG]Bad Gyal, Ovy On The Drums, Ryan Castro - GHETTO PRINCESS (Screwed And Chopped)[/URL][1920x1104, 03:20]
+![image](https://github.com/Maven-HTX/Bad-Gyal-Ovy-On-The-Drums-Ryan-Castro---GHETTO-PRINCESS-Screwed-And-Chopped-/assets/147290097/2d5affee-a882-4fbf-a3e9-022322d0a19b)
+
+##Watch Video
+https://filelions.online/f/mz7nbcgof7fb
+
 
 
 ## Authors
